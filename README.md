@@ -22,3 +22,5 @@
 
 
 Sorry if i yapped too much, i like talking :-/ anyways thanks for reading this! Account made for Pony Town Purposes only.
+![Image](https://github.com/user-attachments/assets/d073036b-1e9d-46f7-846f-236c1f8af0fa)
+![Image](https://github.com/user-attachments/assets/78a63c80-78c4-4b4f-9d48-420c1c95340e)
