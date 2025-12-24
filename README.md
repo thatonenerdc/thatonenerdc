@@ -2,4 +2,4 @@
 
      🍕🍨 🙉 hello i love pizza and ice cream and i hate society ≥’v`≤❗👀  
      
-![Image](https://github.com/user-attachments/assets/f68a8c1b-b759-469d-bd1d-69cf314b1abd)
+<img width="140" src="https://komarev.com/ghpvc/?username=githubusernamehere&color=860111" alt="views count">
