@@ -7,4 +7,4 @@
 
          💫 MLP:FIM,MLP:EG, Gumball, A webbing journey. 🧳
 
- please int carefully 18+. Account made for Ponytown Purposes.
+ please int carefully 18+. Account made for Ponytown Purposes O N L Y !
