@@ -19,3 +19,4 @@ Hope you have a great journey exploring my profile! Bye friends =D
         
 
         
+<img width="2048" height="2048" alt="Untitled74" src="https://github.com/user-attachments/assets/357fccdb-b05b-4f73-8fe7-74c8306b3590" /> from mother, @Asexual-Girl. THANKS SO MUCHH <3
