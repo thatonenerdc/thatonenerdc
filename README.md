@@ -4,7 +4,7 @@
 
      🍕🍨 🙉 hello i love pizza and ice cream and i hate society ≥’v`≤❗👀  
      
-<img width="140" src="https://komarev.com/ghpvc/?username=githubusernamehere&color=f58d6f" alt="views count"> <img width="140" src="https://komarev.com/ghpvc/?username=githubusernamehere&color=65d7c4" alt="views count">
+<img width="140" src="https://komarev.com/ghpvc/?username=githubusernamehere&color=f58d6f" alt="views count"> <img width="140" src="https://komarev.com/ghpvc/?username=githubusernamehere&color=65d7c4" alt="views count">![Image](https://github.com/user-attachments/assets/dbde1575-9622-4fbe-a813-a29e7b65e84a)
  fandoms im in!;
 
          💫 MLP:FIM,MLP:EG, Gumball,Baldi's Basics, A webbing journey. 🧳
